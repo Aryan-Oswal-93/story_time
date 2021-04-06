@@ -1,1 +1,1 @@
-Once upon a time there lived a monkey on the banks of river. there also lived a crocodile and his Wife there.
+Once upon a time there lived a monkey on the banks of river. there also lived a crocodile and his Wife there.Monkey provided fruits to the crocodile and he enjoyed and monkeyy kept on giving fruits and sooon monkey and the crocodile became good friends. The crocodile's wife became jelous of the fruits and thought of killing the monkey
